@@ -1,2 +1,2 @@
-# judeotsieno200-star.github.io
+# judecom.github.io
 Business page
