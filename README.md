@@ -1,2 +1,2 @@
-# judecom.github.io
+# judecom
 Business page
